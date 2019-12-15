@@ -1,4 +1,4 @@
-# A little insight 
+# A little insight into Sarah Guthais
 # hello-world
 
 
